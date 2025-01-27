@@ -1,0 +1,2 @@
+# Fisch-GUI
+[UPD] Fisch Script GUI Pastebin | INFINITE COIN DUPE AUTO FISH DUPE *NO KEY*
